@@ -1,4 +1,4 @@
-### STOP STALKING 👋 SHAME ON U 🚮
+### ⚠️ STOP STALKING 👋 SHAME ON U 🚮 🌶️🐔
 
 <!--
 **Lukelluke/Lukelluke** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
